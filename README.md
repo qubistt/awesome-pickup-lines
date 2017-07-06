@@ -23,6 +23,8 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 
 > Hey baby what's your blood type? Cause I wanna know if I can give you my heart.
 
+> Are you an archaeologist because I've got a bone for you to examine
+
 > I heard you were good at algebra, will you replace my X without asking Y?
 
 > Hey do you wash your clothes in windex? Because I could see myself in your pants
