@@ -23,6 +23,8 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 
 > Hey baby what's your blood type? Cause I wanna know if I can give you my heart.
 
+> Hey do you wash your clothes in windex? Because I could see myself in your pants
+
 > If you were a potato, you'd be a hot potato.
 
 > Hey girl, are you an NVIDIA Fermi graphics card? Because you are HOT
