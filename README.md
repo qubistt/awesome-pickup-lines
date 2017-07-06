@@ -1,7 +1,7 @@
 ![](https://i.redditmedia.com/8eQkQJkcQn8tM7Fr_lhghTYynMju43b3tEvXJi9mzBY.png?w=1024&s=cacbcddec122a5bc9fb90c9f911305f7)
 
 # awesome-pickup-lines
-## Funny, creative, open source pick up lines
+## Open source pick up lines
 
 Have you ever matched with someone on Tinder and thought to yourself, "well shit what am I supposed to say now?"
 Well fear no more, with `awesome-pickup-lines` you'll never find yourself in a situation like that ever again!
