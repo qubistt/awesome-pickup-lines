@@ -63,6 +63,8 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 
 > Are you from Tennessee? Because you look inbred as fuck.
 
+> I hope you've got pet insurance... because I'm going to kill your dog 
+
 > Damn girl, are you my GPA?  Because I know I could do better, I'm just too lazy to actually try.
 
 > Hey girl, are you a newspaper? Because there is a new issue with you every fucking day
