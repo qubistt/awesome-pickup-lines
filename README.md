@@ -64,3 +64,5 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 > be my gf please im so lonely
 
 > PLS RESPOND
+
+> You need a STUD, I have the STD all I need is you
