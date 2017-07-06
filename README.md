@@ -23,9 +23,21 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 
 > Hey baby what's your blood type? Cause I wanna know if I can give you my heart.
 
+> If you were a potato, you'd be a hot potato.
+
+> Hey girl, are you an NVIDIA Fermi graphics card? Because you are HOT
+
+> Are you my appendix? Because I don't understand how you work, but this feeling in my stomach makes me wanna take you out.
+
+> Are you a sea lion? Because I can sea you lion in my bed later.
+
 > Are you an undecided voter? Because I was wondering if we Ken Bone
 
+> Are you my homework, cause I'm not doing you but I definitely should be.
+
 > On a scale of 1-10.. You're a 9 and I'm the 1 you're missing.
+
+> Are you the big bad wolf? Because I'm gonna leave you huffing and puffing.
 
 > You can call me WiFi, 'cause I'm pretty much guaranteed to go down on you.
 
@@ -38,6 +50,8 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 > Hey, are you an American voter by any chance? Because I was hoping I could convince you to make a stupid choice you'd later regret.
 
 > Did it hurt? When you fell from someone's ass and hit the toilet, you piece of shit
+
+> I hope you like limbo, because I set a pretty low bar.
 
 > Are you from Tennessee? Because you look inbred as fuck.
 
