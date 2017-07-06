@@ -76,3 +76,7 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 > PLS RESPOND
 
 > You need a STUD, I have the STD all I need is you
+
+> I'm Donald Trump and you're a member of ISIS, first order of business is me taking you out
+
+> ay gurl, are u a beaver? cus dam
