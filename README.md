@@ -45,6 +45,8 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 
 > If I were a letter I'd be a Q, because I always want to be next to U.
 
+> Hey girl, know what this sweater is made out of? Boyfriend material
+
 > Are you on a United flight? Because I'd hit that
 
 > Hey girl, are you a noose? Because I'd like to have your arms wrapped around my neck, comforting my pitiful existence.
