@@ -80,3 +80,11 @@ Cause you looking right. Sorry, was that not acute pickup line? Honestly, I'm ve
 > I'm Donald Trump and you're a member of ISIS, first order of business is me taking you out
 
 > ay gurl, are u a beaver? cus dam
+
+> are you a preposition? then why are you below me?
+
+> Your clothes look so uncomfortable. Why don’t you let me help you take them off?
+
+> why should i try a pick up line on you tho? i just wanna pin you down
+
+> are you feeling down? cuz i can feel you up if you want
